@@ -15,5 +15,5 @@ I do commissions and freelance work. Send me a friend request via Discord (@ruby
 
 ## Contact Me
 
-Discord: @rubydesic
-Email: rubydesic@gmail.com
+**Discord** @rubydesic\
+**Email** rubydesic@gmail.com
