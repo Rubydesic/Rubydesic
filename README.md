@@ -1,4 +1,4 @@
 # Hi! I'm Rubydesic 👋
 
-**Discord** @rubydesic
+**Discord** @rubydesic\
 **Email** rubydesic@gmail.com
